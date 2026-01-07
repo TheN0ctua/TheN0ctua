@@ -4,7 +4,7 @@
 
   ㅤ  ㅤ  
 
-𐔌 ✦ॱ𓏽 Sunday Lover◞ㅤ“The fruits and of a long journey.”
+星期日 𓃊ㅤ“I will watch over you, and guide you on your path.”
 
 
 OO1' Lazy person & artist (_　_)。゜zｚＺ
