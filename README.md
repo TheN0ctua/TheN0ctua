@@ -16,7 +16,7 @@ kuji ᵒᵘ kyu  <img src="https://file.garden/au5xMQHS4oi-3FEa/brown.gif"
     <tr><td align="center">
    <p align="center">
 
-  ──────────୨ৎ──────────          <br><br>
+  ──────────୨ৎ──────────                              <br><br>
 
 lazy person and lazy artist⠀ 𐔌˙. <br>
 following back only if close but <br>
@@ -29,7 +29,7 @@ feel free to INT or W2I with me!
 ac & pfp credit <br>
 all official art ! <br><br>
 
-(𓏼¬ ‸ ¬𓏼 ⠀ [新book](https://kuji.atabook.org)                      <br>
+(𓏼¬ ‸ ¬𓏼 ⠀ [新book](https://kuji.atabook.org) <br>
 [prns page](https://en.pronouns.page/@TheNoctua1)⠀ദ്ദി(ˆ꒳ˆ    
 
 <br><br>
