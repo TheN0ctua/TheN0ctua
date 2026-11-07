@@ -25,7 +25,7 @@ feel free to INT or W2I with me!
 ---
 
 
-     <img src="https://file.garden/au5xMQHS4oi-3FEa/imagesenigma.png" width="80" div align="right" title="description">
+<img src="https://file.garden/au5xMQHS4oi-3FEa/imagesenigma.png" width="80" div align="right" title="description">
 ac & pfp credit <br>
 all official art ! <br><br>
 
