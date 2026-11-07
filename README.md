@@ -30,7 +30,7 @@ ac & pfp credit <br>
 all official art ! <br><br>
 
 (𓏼¬ ‸ ¬𓏼 ⠀ [新book](https://kuji.atabook.org) <br>
-[prns page](https://en.pronouns.page/@TheNoctua1)⠀ദ്ദി(ˆ꒳ˆ
+[prns page](https://en.pronouns.page/@TheNoctua1)⠀ദ്ദി(ˆ꒳ˆ    
 
 <br><br>
             </p>
