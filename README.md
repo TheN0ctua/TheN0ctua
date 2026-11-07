@@ -16,7 +16,7 @@ kuji ᵒᵘ kyu  <img src="https://file.garden/au5xMQHS4oi-3FEa/brown.gif"
     <tr><td align="center">
    <p align="center">
 
-  ──────────୨ৎ──────────        <br><br>
+  ──────────୨ৎ──────────              <br><br>
 
 lazy person and lazy artist⠀ 𐔌˙. <br>
 following back only if close but <br>
