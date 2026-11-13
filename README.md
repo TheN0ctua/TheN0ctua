@@ -20,7 +20,7 @@ kuji ᵒᵘ kyu  <img src="https://file.garden/au5xMQHS4oi-3FEa/brown.gif"
 
 ' lazy person and lazy artist⠀ 𐔌˙. <br>
 
-[ following back only if close but ] <br>
+[ following back only if close ] <br>
 
 : feel free to W2I or C+H with me! <br>
 Over all I don't mind anything
